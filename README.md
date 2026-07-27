@@ -9,6 +9,6 @@
 
 ## 🚀 Skills
 
-## 📂 Featured Projects
+## 📂 Featured Projects 
 
 ## 📫 Contact 
